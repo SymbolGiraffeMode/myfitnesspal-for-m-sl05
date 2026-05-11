@@ -1,4 +1,4 @@
-
+automatic MyFitnessPal for macOS Helper | goal-setting + heart-rate-monitoring offers the most advanced MyFitnessPal for macOS helper, with goal-setting and heart-rate-monitoring.
 
 
 
